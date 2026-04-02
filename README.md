@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Girmai01
+- 👋 Hi, I’m @Girmai11
 - 👀 I’m interested in ...Designer
 - 🌱 I’m currently learning ... Masters of Business Administration
 - 💞️ I’m looking to collaborate on ...Business Reaserch
